@@ -27,18 +27,4 @@ https://discord.gg/R9rcTWzJ
         vector3(375.62, -829.45, 29.29) مكان الماب 
 
 
-
-        دعم فني للسكربت 
-
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
-        https://discord.gg/R9rcTWzJ
         
